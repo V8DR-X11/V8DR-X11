@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @V8DR-X11
 - 👀 I’m interested in ... All things io Ai bio and any combiation
-- 🌱 I’m currently learning .. Python Prompting .
+- 🌱 I’m currently learning .. Everything I never need to learn but have needed.
 - 💞️ I’m looking to collaborate on ... Then next venture
 - 📫 How to reach me ... thiccrobots@outlook.com  
 - 😄 Pronouns: ...MF Sourcerer HiM He 
