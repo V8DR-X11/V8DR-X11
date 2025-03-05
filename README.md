@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @V8DR-X11
+- 👋 Hi, I’m @V8DR-X11 &  https://github.com/DRKV8R
 - 👀 I’m interested in ... All things io Ai and Ui or bio and any combiation
 - 🌱 I’m currently learning .. Prompt mastery.
 - 💞️ I’m looking to collaborate on ... Then next venture
